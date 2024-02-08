@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning, practicing, and advancing🔖📚
 - 🌱 I’m currently learning c++, python, java, maybe haskell😎
 - 💞️ I’m looking to collaborate on anything really😋
-- 📫 How to reach me kailenmariebrown@gmail.com📩
+- 📫 How to reach me kailenmbrown2003@gmail.com📩
 - 😄 Pronouns: she/her👧🏾
 - ⚡ Fun fact: im a taurus♉
 
